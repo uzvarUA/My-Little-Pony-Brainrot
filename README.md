@@ -1,1 +1,1 @@
-# My-Little-Pony-Brainrot
+# My Little Pony: Brainrot
